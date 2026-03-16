@@ -11,4 +11,4 @@ We do not collect any personal data or personally identifiable information throu
 The game does not store or transmit any user logs or activity data.
 
 ## 3. Contact Us
-If you have any questions about this Privacy Policy, please contact us at: [E-posta Adresini Buraya Yaz]
+If you have any questions about this Privacy Policy, please contact us at: dokiradze2004@gmail.com
